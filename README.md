@@ -50,7 +50,7 @@ Nothing crazy just download the zip and run LIVE_SERVER.
 
 🙎 Contact .
 
-    🔗 Author - @Akshay Kumar - nadarsh915@gmail.com - +91-6265816556
+    🔗 Author - @Nistala Adarsh - nadarsh915@gmail.com - +91-6265816556
 
     ✅ Linkedin ✅ https://www.linkedin.com/in/adarsh-nistala/ ✅
     ✅ Github   ✅ https://github.com/@nadarsh915             ✅
